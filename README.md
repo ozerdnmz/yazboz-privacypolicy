@@ -1,1 +1,0 @@
-# yazboz-privacypolicy
